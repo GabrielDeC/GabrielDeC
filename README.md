@@ -1,6 +1,6 @@
 
 
-## 🧑🏾‍🚀 My Journey
+## My Journey
 
 
 
